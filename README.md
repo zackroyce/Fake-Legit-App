@@ -1,2 +1,3 @@
 # Fake-Legit-App
-Fake Legit App Authenticator (Editable App)
+🔥 Best Fake Authenticator App To Resell Rep Clothing 
+Join Our Discord https://discord.gg/Z82jCZZ2
